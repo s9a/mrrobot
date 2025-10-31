@@ -1,4 +1,6 @@
-# [<sub>lab</sub>J<sup>29</sup>](https://s9a.page/j29)
+# [Elementary, ELLIOT](https://s9a.page/mrrobot)
 
-* [hyperfresh](index.html)
-* [freestyle](lab.css)
+~Mr Robot~ gender synthesis developer guide by synesthesia humans
+
+~The best artists steal~
+The best artist<b>s</b> *heal*
